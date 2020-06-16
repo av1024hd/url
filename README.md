@@ -8,7 +8,7 @@
 
 永久地址发布站
 
-地址1: [https://github.com/av1024hd/url](https://github.com/av1024hd/url)
+地址1: [https://git.io/Jf5Uk](https://git.io/Jf5Uk)
 
 
 海外永久地址(需翻墙)
