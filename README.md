@@ -1,14 +1,12 @@
 # AV1024HD 最新地址
 请选择最新地址
 
-[https://cn.av1024hd.cc](https://cn.av1024hd.cc)
-
-[https://cn.av1024hd.net](https://cn.av1024hd.net)
+[https://av1024hd.cc](https://av1024hd.cc)
 
 
 永久地址发布站
 
-地址1: [https://git.io/Jf5Uk](https://git.io/Jf5Uk)
+地址1: [https://git.io/Jf5UC](https://git.io/Jf5UC)
 
 
 海外永久地址(需翻墙)
